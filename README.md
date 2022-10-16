@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **maueezahmed@gmail.com**
 
-- 📄 Know about my experiences by checking [resume](https://drive.google.com/file/d/1LqIC_9WsXEm1tmluFEbfFNF4vl_1y_D5/view?usp=sharing)
+- 📄 Know about my experiences by checking my [resume](https://drive.google.com/file/d/1LqIC_9WsXEm1tmluFEbfFNF4vl_1y_D5/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
